@@ -15,6 +15,9 @@ Looking to upgrade your productivity with Raycast in 2025? You’re in the right
 | **Validity** | All of 2025 |
 | **Link Status** | [👉 Click Here to Activate Discount](https://www.raycast.com/?via=activeoffer) |
 
+![image-11-1024x595](https://github.com/user-attachments/assets/12ab7409-89ea-4f7f-93ce-e04209f9fe32)(https://www.raycast.com/?via=activeoffer)]
+
+
 
 ## ⚙️ How the Raycast Discount Code Works
 
@@ -113,7 +116,7 @@ You’ll save **10%** instantly, and you also get access to a **free trial**.
 Yes, it works for both **monthly** and **annual Raycast Pro** subscriptions.
 
 ### 4. **Is this offer safe to use?**  
-Absolutely. Our link redirects you to the **official Raycast site**, ensuring a secure checkout.
+ 
 
 
  
